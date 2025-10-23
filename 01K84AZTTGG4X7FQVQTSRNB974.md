@@ -12,9 +12,9 @@ hollow knight
 We are in business!
 -------------------
 
-* * *
-
 We sync in both directions. 🕺
+
+Hopefully the kinks are worked out.
 
 Editing with git and roomy.
 
