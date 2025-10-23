@@ -11,9 +11,10 @@ silksong
 
 hollow knight
 
-## We are in business!
+We are in business!
+-------------------
 
-We sync in both directions. 🕺
+We sync in **both** directions. 🕺
 
 Editing with git and roomy.
 
