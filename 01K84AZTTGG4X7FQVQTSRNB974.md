@@ -1,9 +1,7 @@
 Into the Unknown
 ================
 
-Let’s go.
-
-You know the song.
+Let it go.
 
 _slow._
 
