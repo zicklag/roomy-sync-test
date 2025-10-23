@@ -3,9 +3,11 @@ Saving democracy for the price of a swimming pool
 
 October 21, 2025
 
-Ten walking-minutes from where I live in Oslo, Norway, there's a large pool that opened at the start of this year. I love this pool; I waited many years for it to re-open after it was demolished for subsequent reconstruction.
+Ten minutes from where I live in Oslo, Norway, there's a large pool that opened at the start of this year. I love this pool; I waited many years for it to re-open after it was demolished for subsequent reconstruction.
 
-Yet if I could wave a magic money-back wand and make this pool disappear right now – robbing thousands of people, families and smiling kids of their joyful exercise and community – I would. My fellow locals would surely accuse me of abusing my wizarding powers, but a few more years down the line I'm sure most of them would come to understand this reallocation of resources to have been well worth sacrificing their Sunday swim for.
+> This was added by zicklag.
+
+Yet if I could wave a magic money-back wand and make this pool disappear right now, I would. My fellow locals would surely accuse me of abusing my wizarding powers, but a few more years down the line I'm sure most of them would come to understand this reallocation of resources to have been well worth sacrificing their Sunday swim for.
 
 I would do it because this pool cost $200M USD to build, and **right now, for the price of a single swimming pool in Norway, we could turn the tide of our world-wide democratic downfall.**
 
