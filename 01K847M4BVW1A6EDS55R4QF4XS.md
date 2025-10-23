@@ -3,6 +3,8 @@ Saving democracy for the price of a swimming pool
 
 October 21, 2025
 
+New Edits from zicklag!
+
 Ten minutes from where I live in Oslo, Norway, there's a large pool that opened at the start of this year. I love this pool; I waited many years for it to re-open after it was demolished for subsequent reconstruction.
 
 > This was added by zicklag.
