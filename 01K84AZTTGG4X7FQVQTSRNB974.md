@@ -14,7 +14,9 @@ We are in business!
 
 We sync in both directions. 🕺
 
-Hopefully the kinks are worked out.
+Hopefully the _kinks_ are worked out.
+
+Not bad for now.
 
 Editing with git and roomy.
 
