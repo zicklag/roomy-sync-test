@@ -1,7 +1,7 @@
 Into the Unknown
 ================
 
-New page. Fill me with something awesome. ✨
+Let’s go.
 
 You know the song.
 
