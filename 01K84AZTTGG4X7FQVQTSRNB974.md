@@ -5,8 +5,4 @@ Let’s go.
 
 You know the song.
 
-More edits.
-
-fast.
-
 _slow._
