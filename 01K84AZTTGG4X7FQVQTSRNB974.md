@@ -11,6 +11,10 @@ silksong
 
 hollow knight
 
+## We are in business!
+
+We sync in both directions. 🕺
+
 Editing with git and roomy.
 
 Almost there. Will it work?
