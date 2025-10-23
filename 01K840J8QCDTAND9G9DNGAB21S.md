@@ -10,6 +10,7 @@ _Cool_ stuff.
     fn main() {
         println!("That's awesome");
     }
+    
 
 > What, it worked??
 
